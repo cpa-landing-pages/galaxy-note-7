@@ -1,4 +1,4 @@
-### Galaxy Note 7
+### Samsung Galaxy Note 7 Giveaway
 
 #### About
 ---
